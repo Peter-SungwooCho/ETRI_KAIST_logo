@@ -1,0 +1,1 @@
+# etri_kaist_logo
